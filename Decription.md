@@ -1,0 +1,7 @@
+- 👋 Hi, I’m @VitMine
+- 👀 I’m interested in coding
+- 🌱 I’m currently learning HTML | CSS |Python
+- 💞️ I’m looking to collaborate on /
+- 📫 How to reach me: E-mail: vitmine732@gmail.com
+- 😄 Pronouns: He / Him / His
+- ⚡ Fun fact: /
